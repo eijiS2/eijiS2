@@ -5,4 +5,5 @@
 - 📫 my gmail is gabis.tebas@gmail.com
 
 ![image](https://github.com/eijiS2/eijiS2/assets/139992972/5e5bec6d-975f-4c00-8845-1cd1b8f950cc)
+![image](https://github.com/eijiS2/eijiS2/assets/139992972/c80ea1b8-d546-4f9c-a261-5ba627ff2e1e)
 
